@@ -1,4 +1,4 @@
 # UAS_Analisis-Kebutuhan-Sitem
 
 # PDF
-[Uploading Alifia Ananda Putri_312210168_TI.22.A2_Analisis kebutuhan sistem.pdf…]()
+https://drive.google.com/file/d/1U38ptXaSYrfDPBxTcq56fTujslLFHN9B/view?usp=drive_link
